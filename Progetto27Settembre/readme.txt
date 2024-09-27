@@ -1,0 +1,1 @@
+Ho inserito uno screenshot dimostrativo del punto dell'extra a cui sono arrivato.
